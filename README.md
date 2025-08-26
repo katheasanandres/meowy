@@ -1,5 +1,5 @@
 # Kathea Kim Anjie S. San Andres
-ABOUT KAT!!
+# ABOUT KAT!!
 Basic Info: 
 Age - 18
 Bday - October 04, 2006
