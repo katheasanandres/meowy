@@ -8,5 +8,5 @@
 ### Fav Color: Pink
 ### Pets: Callisto and Nana (˶◜ᵕ◝˶)
 ### Fav Mangas: The Promised Neverland and Dungeon Meshi
-### Fav Games (of all time!! ⸜(｡˃ ᵕ ˂ )⸝♡): Undertale, Franbow, Minecraft, Bendy & the Ink Machine
+### Fav Games (of all time!! ⸜(｡˃ ᵕ ˂ )⸝♡): Undertale, Deltarune, Franbow, Minecraft, and Bendy & the Ink Machine
 
